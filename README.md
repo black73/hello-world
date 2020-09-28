@@ -1,5 +1,5 @@
 # hello-world
-Just beginning
+Just beginning!
 Looking into nothingness may lead us to look at everything with a different light in our eyes. Nothingness can be overwhelming or comforting. 
 This may not make sense, but not everything that is present can make sense to us because we are limited and for us not everything is bound to make sense. 
 Now, there must be a reason we are made to be like this, but again it does not make sense as to why so, why can't we make sense of everything?
