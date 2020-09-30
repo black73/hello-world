@@ -8,3 +8,4 @@ We are surely missing some bigger picture, perhaps we have the tiny pieces but w
 Again WHY?
 Why after some point there is no explanation, why can't our minds comprehend beyond, have we somehow limited ourselves or are we not advanced enough?
 But then why do such questions arise in our minds? Maybe we have the answer somewhere here.
+Again, how to find that?
